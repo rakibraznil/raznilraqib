@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @raznilraqib
+- 👋 Hi, I’m @rakibraznil
 - 👀 I’m interested in ...Gaming
 - 🌱 I’m currently learning ...Video Editing
 - 💞️ I’m looking to collaborate on ...video content
